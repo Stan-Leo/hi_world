@@ -1,2 +1,2 @@
 # hi_world
-1st repos here
+My name is Stan, im from Belarus, Minsk. 
